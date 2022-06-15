@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @fallerino from Germany
+- 👀 I’m interested in Tech, Webdev, Food & Design.
+- 🌱 I’ve studied graphic design and I'm currently improving my coding skills.
+- 📫 How to reach me : fallrino on IG, mail@fallerino.de
